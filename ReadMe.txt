@@ -1,0 +1,1 @@
+Le site est accessible à cette adresse : http://www.projet1.ede-projets-ocr.fr/
